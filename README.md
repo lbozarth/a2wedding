@@ -10,7 +10,7 @@
 1. Ceremony: TBD
 2. Reception: TBD
 
-#### Dress Code: business casual. Please don't wear white or red
+#### Dress Code: cocktail attire. Please don't wear white or red
 
 #### RSVP: contact Amelia or Alex by 05/30/2025
 
