@@ -20,6 +20,6 @@
 
 #### Registry: no registries, no gifts, no cash, no red envelopes. Just show up and have a great party.
 
-#### Bringing guests: please contact Amelia or Alex if you have +1,+2,+3.
+#### Bringing additional guests: the more the merrier, please contact Amelia or Alex if you have +1,+2,+3.
 
 #### Additional Notes: if you have more questions or thoughts, please contact Amelia or Alex
