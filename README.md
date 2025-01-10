@@ -22,4 +22,6 @@
 
 #### Bringing additional guests: the more the merrier, please contact Amelia or Alex if you have +1,+2,+3.
 
+#### Age: older childern okay~ parts of the wedding is rated R
+
 #### Additional Notes: if you have more questions or thoughts, please contact Amelia or Alex
